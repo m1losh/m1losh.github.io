@@ -2,4 +2,4 @@
 
 A developer, graphics design/print, audio pp and a musician.
 
-gojic_milos@live.com
+Contact: gojic_milos@live.com
